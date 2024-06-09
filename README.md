@@ -11,3 +11,4 @@ mera ay 8 din e suna pher ki hal e
 yarr ak ty bohat phika ay green color
 menu hor green kero cheti kr ke 
 6 comment kite e per kuj v ni hoay 
+kuj te krna pre ga yaar mushkil ho gaye ay
