@@ -15,3 +15,4 @@ kuj te krna pre ga yaar mushkil ho gaye ay
 jkuhnj yujh 
 Add you contact address on base network yaar 
 jaldi kro jitna ho sake
+yaar pata ni ku yaad ni renda
