@@ -20,3 +20,4 @@ Shukar he mil gaye bro thanks
 thanks god a lot of
 happy eid mubarak
 aj eid ka 3rd din he
+hun me ni chutti krni is mamle me thaik he na
