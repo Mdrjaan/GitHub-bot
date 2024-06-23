@@ -22,3 +22,4 @@ happy eid mubarak
 aj eid ka 3rd din he
 hun me ni chutti krni is mamle me thaik he na
 abi ai thori der tak
+yaar me ki kran aj hun 
