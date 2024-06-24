@@ -23,3 +23,5 @@ aj eid ka 3rd din he
 hun me ni chutti krni is mamle me thaik he na
 abi ai thori der tak
 yaar me ki kran aj hun 
+kal yaar mera phr se fund urh gya me bohat preshan ho gya hon
+chalo khair alla waris ay 
