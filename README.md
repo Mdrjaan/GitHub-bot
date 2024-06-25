@@ -25,3 +25,4 @@ abi ai thori der tak
 yaar me ki kran aj hun 
 kal yaar mera phr se fund urh gya me bohat preshan ho gya hon
 chalo khair alla waris ay 
+lagda ay ni kiti save 
