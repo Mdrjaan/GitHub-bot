@@ -27,3 +27,4 @@ kal yaar mera phr se fund urh gya me bohat preshan ho gya hon
 chalo khair alla waris ay 
 lagda ay ni kiti save 
 wake e meni miss kita yahoo
+Thore din reh gaye ne apna task complete hon te
