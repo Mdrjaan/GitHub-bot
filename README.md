@@ -28,3 +28,4 @@ chalo khair alla waris ay
 lagda ay ni kiti save 
 wake e meni miss kita yahoo
 Thore din reh gaye ne apna task complete hon te
+yaar ne to had kr di
